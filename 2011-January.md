@@ -19,7 +19,7 @@ This time therefore you should remember God
 > Act on Radha Soami’s advice 
 > &emsp;  to end your pains
 > &emsp;  and find your way to peace.
-
+>
 > <sub>_Sar Bachan Poetry_</sub>
 
 ## The Broken Straw
@@ -61,21 +61,27 @@ Maharaj Charan Singh frequently declared, “Love means losing your identity to 
 
 ## Much Ado About Nothing
 
-Time is marching on and still we are pretending to be somebody. “Be bold enough to struggle,” he said.
+Time is marching on and still we are pretending to be somebody. 
+“Be bold enough to struggle,” he said.
+‘Nobody son of nobody’ is not a poetic idea. It is the only Reality. 
+Not the ‘reality’ of Reality TV.
 
-‘Nobody son of nobody’ is not a poetic idea. It is the only Reality. Not the ‘reality’ of Reality TV.
+The ideal of being a ‘nobody’ is a finger pointing beyond
+the illusion of being a somebody – 
+the banner of the Visitors to a Foreign Land.
 
-The ideal of being a ‘nobody’ is a finger pointing beyond the illusion of being a somebody – the banner of the Visitors to a Foreign Land.
-
-It’s time to get serious about being a nobody or we’ll end up becoming a real somebody, and that would be the grandfather of all catastrophes – Forever doomed to ‘many happy returns.’
+It’s time to get serious about being a nobody 
+or we’ll end up becoming a real somebody, 
+and that would be the grandfather of all catastrophes – 
+Forever doomed to ‘many happy returns.’
 
 ‘Do you understand Spirituality?’ he asked.
-
-It is freedom from everything, including our crystallization of ‘nothing.’
-
-So, be confused, confounded and strongly rudderless. Out! Out of here!
-
-Through this perfect everywhere. Gone!
+It is freedom from everything, including our crystallization of
+‘nothing.’
+So, be confused, confounded and strongly rudderless. 
+Out! Out of here!
+Through this perfect everywhere. 
+Gone!
 
 
 
@@ -114,6 +120,7 @@ In meditation, we are simply asked to be ourselves and to commune with our Maste
 
 Let’s surrender to the struggle, click our heels together and go home.
 
+---
 > &emsp;My Beloved, this torture and pain
 > I suffer because I am so addicted to Your Beauty.
 > &emsp; People ask me whether I prefer Your company to being in heaven.
@@ -146,10 +153,10 @@ The mind has no power in comparison with the power of the Master. Following his 
 
 ## Name, the Guru’s Grace
 
-There is but one God; true is his Name....
-
+There is but one God; 
+&emsp; true is his Name....
 He is realized through the Guru’s grace.
-> <sub>_Jap Ji: A Perspective_</sub>
+<sub>_Jap Ji: A Perspective_</sub>
 
 These three lines from the Mool Mantra of Guru Nanak’s _Jap Ji_ express the essence of the teachings of the Gurus, which offer the promise of realization of the Lord’s Name through the Guru’s grace. A more beautiful and concise statement of the gift that all satsangis have been given is hard to imagine.
 
@@ -194,7 +201,7 @@ All he asks is that we adhere to the principles and give full time to our medita
 > Loving everybody means loving the One who is in everybody, but not being attached to any particular person. And we can only love that One after we have merged our identity into his. Through meditation, by his grace, we become perfect and pure so that we can merge into the perfect and pure One....
 > If love is there, it is there. If it comes, it just comes. But by meditation everybody can grow that love.... Everybody can grow that feeling, that love, that intensity, by meditation.
 > <sub>_Die to Live_</sub>
-
+---
 > Whoever is initiated by a Master comes under his complete protection. Gradually, the idea takes root in the mind of such a disciple that God pervades everything and there exists nothing without him.
 > <sub>J. R. Puri and K. S. Khak, _Sultan Bahu_</sub>
 
@@ -210,6 +217,7 @@ Every minute we remember our Master, we are struggling to pay attention to that 
 
 The process of divine realization is relentless. Every time we replace a thought with a round of simran, and every time we seek the Master within, we attune ourselves to the Shabd. Through that process, we come to see the beautiful essence of all life, where one plus one always equals one.
 
+---
 > The present moment is the most valuable thing there is. Nothing happens tomorrow, nothing happens yesterday, everything always happens now. In fact, the ‘now’ is the only time there is. It is impossible for us to do or to think something outside the present moment. When we remember, it is always in the now. When we think about the future, it is always in the now. When the future catches up, it is always in the present moment.
 > <sub>_Living Meditation_</sub>
 
@@ -223,11 +231,16 @@ Hakim Sanai, an early Sufi poet, says:
 This is a very good description of the situation of satsangis and seekers alike: we are on a “bridge” between two worlds. Through the grace of the Lord we have, in spirit at least, left the material world. Sometimes we are confused and bewildered, many times we only see obstacles, but our heart wants more than anything to move forward. We are tired of our part in this play and want to go home. The Lord is moved by our plight and our real longing, and sends the Master, the Satguru, with his divine invitation to come back to his court.
 Hafiz says:
 
-> You have been invited to meet The Friend.
-> No one can resist a Divine Invitation. That narrows down all our choices To just two:
+> You have been invited to meet 
+> The Friend.
+> No one can resist a Divine Invitation. 
+> That narrows down all our choices
+>  To just two:
 > We can come to God
-> Dressed for Dancing, Or
-> Be carried on a stretcher To God’s Ward.
+> Dressed for Dancing, 
+> Or
+> Be carried on a stretcher
+>  To God’s Ward.
 > <sub>_I Heard God Laughing: Renderings of Hafiz,_Daniel Ladinsky</sub>
 
 You see, when the Master asks us to come to his court, we cannot refuse – we must go. Maharaj Charan Singh used to jokingly say something similar. To paraphrase: When God calls, you can go willingly or be dragged by a bulldozer.
@@ -299,6 +312,7 @@ The song further advises us in which direction we should go: Go down the stream,
 
 So it seems that ever since we were kids, there were hints that this world is only an illusion, only a dream and not real.
 
+---
 > You will get the feeling that you are nothing, when you merge in the love of the Master. You are not mentally nor symbolically to feel that you are nothing, or, “I am nothing,” nor to feel that you are everything. You will just forget what you are. When you absolutely blend yourself into the love of another person, then you forget what you are. Then you know you are nothing. Everything is ‘he’ or ‘she’. Similarly, we have to forget by meditation that we are anything and know that everything is the Master. That will only be, as I have just explained, when we drive our ego out of us by meditation.
 > <sub>Maharaj Charan Singh, _The Master Answers_</sub>
 
@@ -415,6 +429,7 @@ Sultan Bahu says:
 
 That love, that light, that melody is the Shabd; let us go within, merge with it and become light ourselves.
 
+---
 > The inner light one can see even in darkness, and even a blind man can experience it, because it is not the physical eyes but the attention that sees within.
 > <sub>_Divine Light_</sub>
 
@@ -428,12 +443,10 @@ That love, that light, that melody is the Shabd; let us go within, merge with it
 > to tumble from the heavens above. 
 > &emsp;Faced with the sighs of lovers, 
 > only the lovers remain steadfast.
-
 > Give up all procrastination 
 > &emsp;and awaken your soul...
 > Have faith in the Lord, like the birds 
 > &emsp;that fly through the air without carrying their food....
-
 > Bliss and grace reign in the heart
 >  that glows with the light of love.
 > <sub>_Sultan Bahu_</sub>
@@ -493,9 +506,7 @@ That is the beginning of the great transformation that we undergo as disciples. 
 ## Book Review
 
 **Signs of the Unseen: The Discourses of Jalaluddin Rumi**
-
 &emsp;Translated by W. M. Thackston, Jr.
-
 &emsp;Publisher: Brattleboro, VT: Threshold Books, 1994. ISBN: 1570625328
 
 It is not often that we have a chance to “eavesdrop” on informal talks between disciples and their Master. _Signs of the Unseen_ is Persian scholar
@@ -540,3 +551,4 @@ He counsels his disciples to make all the effort they are capable of, and only w
 > We say to you, “Travel this endless road on your own weak legs.” We know that with your weak legs you will never be able to finish the way – in a hundred thousand years you will not finish even one stage of the way. Only when you make the effort and come onto the road to fall down at last, unable to go another step, only then will you be uplifted by God’s favor.
 
 Another excellent translation of Rumi’s _Fihi ma fihi_ is also available under the title _Discourses of Rumi,_ translated by A. J. Arberry (Samuel Weiser, 2001, reprint of the 1961 original).
+
