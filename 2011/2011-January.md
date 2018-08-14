@@ -57,8 +57,6 @@ This fusion is no mere metaphor but is, in fact, the most profound experience fo
 
 Maharaj Charan Singh frequently declared, “Love means losing your identity to become another being” (_Legacy of Love_). Through the application of the divine spark conveyed by the Master, the attention of the disciple is fused with the Word of God within and thus transformed into a divine being fit to enter into the Kingdom of Heaven. In this way, the broken straw of life is made whole.
 
-
-
 ## Much Ado About Nothing
 
 Time is marching on and still we are pretending to be somebody. 
@@ -82,8 +80,6 @@ So, be confused, confounded and strongly rudderless.
 Out! Out of here!
 Through this perfect everywhere. 
 Gone!
-
-
 
 ## Embrace the Struggle
 
@@ -337,7 +333,6 @@ So it’s a good idea, but other descriptions of the material universe as origin
 But for most of us, this – like string theory – remains just a description that appeals to us, a perspective we can relate to. The only way to know for sure what’s going on is to forget all the theories and to sit down in meditation; allow our consciousness to expand and be taken up by the Master, so that we can see for ourselves how the whole show is put together. Then we will see how matter is an expression of consciousness, and how consciousness is the essence of the divine. Out with the theory and in with personal experience.
 
 So it’s back to our pads, guys!
-
 
 ---
 > Through past actions 
