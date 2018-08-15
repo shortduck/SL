@@ -1,24 +1,24 @@
 ## Dear Soul
 
-> I know, dear soul, that you have been in distress –
-> &emsp;  in distress ever since you forgot Shabd
-> &emsp;  and made friends with the mind.
-> This fool, the mind, tied you down to the body
-> &emsp;  and charmed you with sensual pleasures.… 
+> I know, dear soul, that you have been in distress –  
+> &emsp;  in distress ever since you forgot Shabd  
+> &emsp;  and made friends with the mind.  
+> This fool, the mind, tied you down to the body  
+> &emsp;  and charmed you with sensual pleasures.…   
 This time therefore you should remember God
-> &emsp; and go home,
-> &emsp;  or you will continue wandering 
-> &emsp;  through the four forms of life.
-> Attend satsang, seek your true destination 
-> &emsp;  and lose yourself in your Master’s love.
-> The Master will help you find
-> &emsp;   the jewel of Nam within yourself
-> &emsp;   and retrace your way through the inner skies.
-> Just do this now, in this very life, 
-> &emsp;  and the Master will take care of the rest.
-> Act on Radha Soami’s advice 
-> &emsp;  to end your pains
-> &emsp;  and find your way to peace.
+> &emsp; and go home,  
+> &emsp;  or you will continue wandering   
+> &emsp;  through the four forms of life.  
+> Attend satsang, seek your true destination   
+> &emsp;  and lose yourself in your Master’s love.  
+> The Master will help you find  
+> &emsp;   the jewel of Nam within yourself  
+> &emsp;   and retrace your way through the inner skies.  
+> Just do this now, in this very life,   
+> &emsp;  and the Master will take care of the rest.  
+> Act on Radha Soami’s advice   
+> &emsp;  to end your pains  
+> &emsp;  and find your way to peace.  
 >
 > <sub>_Sar Bachan Poetry_</sub>
 
@@ -26,7 +26,7 @@ This time therefore you should remember God
 
 Soami Ji Maharaj relates the following story:
 
-> Some people say to a Satguru, “Here I break a piece of straw. If you are a perfect Satguru, make it whole again.” The Satguru replies; “Ask him whom you believe to be Brahm to make whole the broken straw. If he makes it whole, I too shall do it.”
+> Some people say to a Satguru, “Here I break a piece of straw. If you are a perfect Satguru, make it whole again.” The Satguru replies; “Ask him whom you believe to be Brahm to make whole the broken straw. If he makes it whole, I too shall do it.”  
 > <sub>_Sar Bachan Prose_</sub>
 
 The saints never allow themselves to be drawn into trivial discussions or proofs of the existence of God with insincere people. Christ demonstrates the same thing. When asked by Pontius Pilate “What is truth?” he offers no reply (Bible, John 18:38).
@@ -85,7 +85,7 @@ Gone!
 
 Maharaj Charan Singh was asked a question regarding the actual set amount of simran that an individual must do in his life. This was his answer:
 
-> There’s no set amount. It’s a whole life of struggle – that’s the amount. A whole life of struggle. We have to withdraw our consciousness to the eye centre, and then we have to hold our consciousness there, that it may not slip down again. That is why it is a lifelong struggle.
+> There’s no set amount. It’s a whole life of struggle – that’s the amount. A whole life of struggle. We have to withdraw our consciousness to the eye centre, and then we have to hold our consciousness there, that it may not slip down again. That is why it is a lifelong struggle.  
 > <sub>_Die to Live_</sub>
 
 Baba Ji was asked a question about ending this struggle and returning to our divine home. He was asked why the Lord doesn’t just take us in sooner rather than later, since this will happen eventually. He replied by saying something like he wished that it were so simple, but in time we will see that there is value in the struggle.
@@ -117,18 +117,18 @@ In meditation, we are simply asked to be ourselves and to commune with our Maste
 Let’s surrender to the struggle, click our heels together and go home.
 
 ---
-> &emsp;My Beloved, this torture and pain
-> I suffer because I am so addicted to Your Beauty.
-> &emsp; People ask me whether I prefer Your company to being in heaven.
-> Heedless fools, what would heaven itself mean 
->  &emsp;Without the Friend’s Presence.
+> &emsp;My Beloved, this torture and pain  
+> I suffer because I am so addicted to Your Beauty.  
+> &emsp; People ask me whether I prefer Your company to being in heaven.  
+> Heedless fools, what would heaven itself mean   
+>  &emsp;Without the Friend’s Presence.  
 > <sub>_Nobody, Son of Nobody,_ rendition by Vraje Abramian</sub>
 
 ## The Most Useful of Servants
 
 Those aspects of our mind that are easily dissatisfied, restless, discouraged, fearful or brittle seem to reappear despite our best intentions. The saints, however, assure us that there is hope with the double-edged sword of the mind. Maharaj Charan Singh says this:
 
-> Mind is the deadliest of foes, but the most useful of servants. When it turns wild and gets out of control, it heads for certain destruction. When properly awakened and controlled, there is no limit to what the mind can do.
+> Mind is the deadliest of foes, but the most useful of servants. When it turns wild and gets out of control, it heads for certain destruction. When properly awakened and controlled, there is no limit to what the mind can do.  
 > <sub>_Die to Live_</sub>
 
 So how exactly are we to encourage the mind to become our “most useful of servants”? In _Sar Bachan Prose,_ the restless and agitated mind is compared to an elephant in rut on a rampage of destruction, trampling everything in sight. Soami Ji Maharaj writes:
@@ -137,12 +137,12 @@ So how exactly are we to encourage the mind to become our “most useful of serv
 
 Being guided by the Guru seems simple to understand; but it will take most of us a lifetime of effort to accept that guidance. The work begins with obedience.
 
-> Leaving everything else aside, one must implicitly obey the Satguru of his own time, and faithfully follow his instructions. This will lead him to success. This is the long and short of everything.
+> Leaving everything else aside, one must implicitly obey the Satguru of his own time, and faithfully follow his instructions. This will lead him to success. This is the long and short of everything.  
 > <sub>_Sar Bachan Prose_</sub>
 
 And the instructions of all the spiritual teachers on this path are clear: do simran and bhajan, follow the vows, try your best. However, we can’t stop the wild and uncontrolled mind by ourselves, but we know someone who can help us. We are invited to take refuge with the Master.
 
-> This world of sunshine and darkness can be crossed only by taking refuge in the company of the saints and carrying out their directions with love, faith and devotion. It is only when we give up the frail boat of the mind and step on to the seaworthy ship of the living Master that we can safely reach the shore of light, love and wisdom.
+> This world of sunshine and darkness can be crossed only by taking refuge in the company of the saints and carrying out their directions with love, faith and devotion. It is only when we give up the frail boat of the mind and step on to the seaworthy ship of the living Master that we can safely reach the shore of light, love and wisdom.  
 > <sub>Maharaj Sawan Singh, _Spiritual Discourses,_Vol. I</sub>
 
 The mind has no power in comparison with the power of the Master. Following his instructions, accepting his protection, and taking refuge with his loving kindness, the mind will become what Maharaj Charan Singh has promised it will be: “the most useful of servants.”
@@ -162,10 +162,10 @@ This leads us to the second line, “true is his Name”, a very interesting sta
 
 As Sant Namdev has so eloquently expressed:
 
-> The Lord’s Name is his form, his form is his Name – 
-> &emsp;His Name is not apart from his form.
-> The formless One has taken the form of the Name 
-> &emsp;And within Namdev he has made his abode.
+> The Lord’s Name is his form, his form is his Name –   
+> &emsp;His Name is not apart from his form.  
+> The formless One has taken the form of the Name   
+> &emsp;And within Namdev he has made his abode.  
 > <sub>_Saint Namdev_</sub>
 
 The saints have written volumes extolling the glory of the Name.
@@ -182,8 +182,8 @@ All along the way, it is our practice to focus on the Guru’s Name and form. Th
 
 Guru Nanak says:
 
-> Meditate on the true Name
-> &emsp; And reflect on his greatness.
+> Meditate on the true Name  
+> &emsp; And reflect on his greatness.  
 > <sub>_Jap Ji: A Perspective_</sub>
 
 The Guru is our only salvation. Let us keep him in our mind throughout the day and “reflect on his greatness”. Let his presence be always felt. Let us always keep his Name in our hearts. There is no other way. Contemplation of the Guru will save us from the suffering of rebirth and bring us the bliss of his Name.
@@ -194,11 +194,11 @@ All he asks is that we adhere to the principles and give full time to our medita
 
 ## Love
 
-> Loving everybody means loving the One who is in everybody, but not being attached to any particular person. And we can only love that One after we have merged our identity into his. Through meditation, by his grace, we become perfect and pure so that we can merge into the perfect and pure One....
-> If love is there, it is there. If it comes, it just comes. But by meditation everybody can grow that love.... Everybody can grow that feeling, that love, that intensity, by meditation.
-> <sub>_Die to Live_</sub>
+> Loving everybody means loving the One who is in everybody, but not being attached to any particular person. And we can only love that One after we have merged our identity into his. Through meditation, by his grace, we become perfect and pure so that we can merge into the perfect and pure One....  
+> If love is there, it is there. If it comes, it just comes. But by meditation everybody can grow that love.... Everybody can grow that feeling, that love, that intensity, by meditation.  
+> <sub>_Die to Live_</sub>  
 ---
-> Whoever is initiated by a Master comes under his complete protection. Gradually, the idea takes root in the mind of such a disciple that God pervades everything and there exists nothing without him.
+> Whoever is initiated by a Master comes under his complete protection. Gradually, the idea takes root in the mind of such a disciple that God pervades everything and there exists nothing without him.  
 > <sub>J. R. Puri and K. S. Khak, _Sultan Bahu_</sub>
 
 ## One Plus One Equals One
@@ -214,29 +214,29 @@ Every minute we remember our Master, we are struggling to pay attention to that 
 The process of divine realization is relentless. Every time we replace a thought with a round of simran, and every time we seek the Master within, we attune ourselves to the Shabd. Through that process, we come to see the beautiful essence of all life, where one plus one always equals one.
 
 ---
-> The present moment is the most valuable thing there is. Nothing happens tomorrow, nothing happens yesterday, everything always happens now. In fact, the ‘now’ is the only time there is. It is impossible for us to do or to think something outside the present moment. When we remember, it is always in the now. When we think about the future, it is always in the now. When the future catches up, it is always in the present moment.
+> The present moment is the most valuable thing there is. Nothing happens tomorrow, nothing happens yesterday, everything always happens now. In fact, the ‘now’ is the only time there is. It is impossible for us to do or to think something outside the present moment. When we remember, it is always in the now. When we think about the future, it is always in the now. When the future catches up, it is always in the present moment.  
 > <sub>_Living Meditation_</sub>
 
 ## A Divine Invitation
 
 Hakim Sanai, an early Sufi poet, says:
 
-> Whoever is caught up in the bonds of this world stands only to gain if he flees its might; for this world is the source of pain and sorrow: the wise have called it a transit camp.... It is surely the height of folly for you to linger on this bridge.
+> Whoever is caught up in the bonds of this world stands only to gain if he flees its might; for this world is the source of pain and sorrow: the wise have called it a transit camp.... It is surely the height of folly for you to linger on this bridge.  
 > <sub>_The Walled Garden Of Truth – Hakim Sanai,_translated by D. L. Pendlebury</sub>
 
 This is a very good description of the situation of satsangis and seekers alike: we are on a “bridge” between two worlds. Through the grace of the Lord we have, in spirit at least, left the material world. Sometimes we are confused and bewildered, many times we only see obstacles, but our heart wants more than anything to move forward. We are tired of our part in this play and want to go home. The Lord is moved by our plight and our real longing, and sends the Master, the Satguru, with his divine invitation to come back to his court.
 Hafiz says:
 
-> You have been invited to meet 
-> The Friend.
-> No one can resist a Divine Invitation. 
-> That narrows down all our choices
->  To just two:
-> We can come to God
-> Dressed for Dancing, 
-> Or
-> Be carried on a stretcher
->  To God’s Ward.
+> You have been invited to meet   
+> The Friend.  
+> No one can resist a Divine Invitation.   
+> That narrows down all our choices  
+>  To just two:  
+> We can come to God  
+> Dressed for Dancing,   
+> Or  
+> Be carried on a stretcher  
+>  To God’s Ward.  
 > <sub>_I Heard God Laughing: Renderings of Hafiz,_Daniel Ladinsky</sub>
 
 You see, when the Master asks us to come to his court, we cannot refuse – we must go. Maharaj Charan Singh used to jokingly say something similar. To paraphrase: When God calls, you can go willingly or be dragged by a bulldozer.
@@ -245,48 +245,48 @@ The point the saints are making here is that we only get that invitation when Go
 
 Rumi almost commands us to leave here, to move on:
 
-> Lovers of truth – rise up! 
-> Let us go toward heaven.
-> We have seen enough of this world, 
-> It’s time to see another....
+> Lovers of truth – rise up!   
+> Let us go toward heaven.  
+> We have seen enough of this world,   
+> It’s time to see another....  
 > <sub>_Rumi – In the Arms of the Beloved,_ translated by Jonathon Star</sub>
 
 Soami Ji Maharaj, in a similar way, also exhorts us to leave here:
 
-> My mind, abandon this abode of pleasure and pain, 
-> rise above it and attach yourself to Satnam, the true Lord.
+> My mind, abandon this abode of pleasure and pain,   
+> rise above it and attach yourself to Satnam, the true Lord.  
 > <sub>_Sar Bachan Poetry_</sub>
 
 He goes on to explain to us why we should abandon this place and tells us of one of the great obstacles in our way. He says:
 
-> Your stay in this body is short-lived,
-> it is a city you will have to abandon one day. 
-> Neither your wealth, nor your wife, 
+> Your stay in this body is short-lived,  
+> it is a city you will have to abandon one day.   
+> Neither your wealth, nor your wife,   
 > nor your children and grandchildren will be of help to you then.
 
 How easy it is to forget that we too must die. We see or hear about death all around us, but we don’t want to believe that it will happen to us. The obstacle that he is referring to is our attachment to the people and things of this world.
 
 In another poem Soami Ji refers to the attachment to wife, children, grandchildren and our own bodies as a four-stranded cord that can expand into five, six, seven, or more strands that tether us to a stake. He is not saying that we should not love our wife, children, grand-children, etc.; love is very different from attachment. Love, as saints define it, is giving compassion and understanding, without expectations of anything in return. Attachment is always taking or having expectations. The saints say that to put our faith in a relationship built on attachment is foolish. These relationships are only for a short time; they will not last, and when we die none will go with us. Maharaj Sawan Singh, the Great Master, says the following about attachments:
 
-> Do not give to the world and the people of the world a value equal to that of your own ideal. Wherever your desire is, there must your residence be. Because our love is all for this world, that is the very reason why we must come back into this world again and again. But if we give our love to the Lord, we attain salvation. The Lord and the world are in the scales, and that side to which you give your love will go down (outweigh the other). The world is to be dissolved and her people also. When the gurmukh detaches his love from this world and its people, and has taken the path from the Master, he should give his love to the Lord. If we give to him our true love, then no one can ever bring us back into this world.
+> Do not give to the world and the people of the world a value equal to that of your own ideal. Wherever your desire is, there must your residence be. Because our love is all for this world, that is the very reason why we must come back into this world again and again. But if we give our love to the Lord, we attain salvation. The Lord and the world are in the scales, and that side to which you give your love will go down (outweigh the other). The world is to be dissolved and her people also. When the gurmukh detaches his love from this world and its people, and has taken the path from the Master, he should give his love to the Lord. If we give to him our true love, then no one can ever bring us back into this world.  
 > <sub>_Spiritual Gems_</sub>
 
 Besides attachment to family, another cord of attachment that tethers us to this world is the attachment to our own body and personality. Now we are so attached to the body that we have forgotten all about death. If we really did understand that we are drowning in the ocean of this world, and if we realized it is the Master that throws us a lifeline, then truly we would hang on to it for dear life. The Master has thrown us a lifeline, which is the path of Sant Mat. This lifeline is the rope of Shabd, which comes from its source in the Lord through the hands of the Master. When we grasp on to this lifeline, slowly but surely the Master pulls us out of the current of this world back to his arms.
 
 Our problem is that we don’t believe that we are drowning, so we can hardly realize that someone is saving us. One reason for this is the fact that we believe we have the luxury of time. So the saints are constantly trying to shake us out of this lethargy and urging us to take action now. Maharaj Charan Singh interprets John 4:35 in the Bible by saying:
 
-> When you have raised your consciousness to the eye centre, you have, as it were, the crop of your meditation ripe and ready for harvesting, and you can begin to gather it. He [Christ] says: The Lord is always waiting for you there.... waiting to pull you to your own destination, your eternal home of peace and bliss....
-> Do not put off your meditation on one excuse or another.... The harvest is ready for you; the Lord is waiting for you there.
+> When you have raised your consciousness to the eye centre, you have, as it were, the crop of your meditation ripe and ready for harvesting, and you can begin to gather it. He [Christ] says: The Lord is always waiting for you there.... waiting to pull you to your own destination, your eternal home of peace and bliss....  
+> Do not put off your meditation on one excuse or another.... The harvest is ready for you; the Lord is waiting for you there.  
 > <sub>_Light on Saint John_</sub>
 
 How do we overcome these obstacles that our attachments present? How do we break free from these attachments that hold us so firmly to this earth? The answer of course is to have faith in the Master and our meditation. This is no simple matter, but it is the only remedy. Ultimately, we must surrender the ego entirely. So don’t hesitate, “don’t linger on this bridge”. Grab hold of the Master; he is patiently waiting. Once again, Soami Ji sums up all of these thoughts and words so beautifully:
 
-> Love your Master
->  as a lover adores his sweetheart.
-> Stay in his company with a heart filled with longing
->  and hold on to his feet with all your mind.
-> Be open with him – no cunning or deceit
-> and try to grasp his message.
+> Love your Master  
+>  as a lover adores his sweetheart.  
+> Stay in his company with a heart filled with longing  
+>  and hold on to his feet with all your mind.  
+> Be open with him – no cunning or deceit  
+> and try to grasp his message.  
 > <sub>_Sar Bachan Poetry_</sub>
 
 ## Life Is But a Dream
@@ -295,9 +295,9 @@ In meditation, thoughts will always come and flit around in their undisciplined 
 
 There is a childhood song we may remember called, “ Row, Row, Row Your Boat”.
 
-> Row, row, row your boat 
-> Gently down the stream,
-> Merrily, merrily, merrily, merrily, 
+> Row, row, row your boat   
+> Gently down the stream,  
+> Merrily, merrily, merrily, merrily,   
 > Life is but a dream.
 
 There may have been a lot more wisdom, especially spiritual wisdom, in that song than we ever suspected when we sang it as a kid. It advises us to “row, row, row your boat” – no one else can do it for us. Don’t just sit in the boat and do nothing. Take action, take control and steer, and keep on rowing, keep on going. Keep on repeating those names – simran, simran, simran.
@@ -309,7 +309,7 @@ The song further advises us in which direction we should go: Go down the stream,
 So it seems that ever since we were kids, there were hints that this world is only an illusion, only a dream and not real.
 
 ---
-> You will get the feeling that you are nothing, when you merge in the love of the Master. You are not mentally nor symbolically to feel that you are nothing, or, “I am nothing,” nor to feel that you are everything. You will just forget what you are. When you absolutely blend yourself into the love of another person, then you forget what you are. Then you know you are nothing. Everything is ‘he’ or ‘she’. Similarly, we have to forget by meditation that we are anything and know that everything is the Master. That will only be, as I have just explained, when we drive our ego out of us by meditation.
+> You will get the feeling that you are nothing, when you merge in the love of the Master. You are not mentally nor symbolically to feel that you are nothing, or, “I am nothing,” nor to feel that you are everything. You will just forget what you are. When you absolutely blend yourself into the love of another person, then you forget what you are. Then you know you are nothing. Everything is ‘he’ or ‘she’. Similarly, we have to forget by meditation that we are anything and know that everything is the Master. That will only be, as I have just explained, when we drive our ego out of us by meditation.  
 > <sub>Maharaj Charan Singh, _The Master Answers_</sub>
 
 ## Mystical Space
@@ -335,9 +335,9 @@ But for most of us, this – like string theory – remains just a description t
 So it’s back to our pads, guys!
 
 ---
-> Through past actions 
-> we attain the robe of human form 
-> through grace, the door to liberation.
+> Through past actions   
+> we attain the robe of human form   
+> through grace, the door to liberation.  
 > <sub>_Jap Ji: A Perspective_</sub>
 
 ## Lighten Up
@@ -346,7 +346,7 @@ Recently, Baba Ji said several times that we need to lighten up. In that context
 
 Having a lighter attitude and being positive on the path is very important, even when things are not going well in our lives. Smiling is important. It is said that it takes something like forty-three muscles to frown but only seventeen to smile; therefore, smiling is physically easier. This may not be literally true, but Maharaj Charan Singh supports this idea when he says:
 
-> Give up the habit of worrying and losing your temper. It is easy to be happy and laughing; in fact, easier than it is to fret and frown. God does not want us to be unhappy. It is a sin to worry. Have faith in his goodness and grace and try to keep simran on your lips at all times.
+> Give up the habit of worrying and losing your temper. It is easy to be happy and laughing; in fact, easier than it is to fret and frown. God does not want us to be unhappy. It is a sin to worry. Have faith in his goodness and grace and try to keep simran on your lips at all times.  
 > <sub>_Divine Light_</sub>
 
 He doesn’t say, “Try not to worry.” He says, “It is a sin to worry.” He says, “God does not want us to be unhappy.” In other words, God wants us to be happy, to laugh. The Masters themselves often show us this light hearted side, where they can joke and laugh easily. Many of us have fond memories of Maharaj Charan Singh throwing back his head with a hearty laugh; or of hearing him say something unexpected and then hearing the audience break out into peals of laughter as a wide grin spread across his face.
@@ -369,7 +369,7 @@ The Masters can make us laugh because they are overflowing with love and happine
 
 Maharaj Charan Singh tells us in _Quest for Light:_
 
-> In fact, no other person should be so happy in this world as an initiate who is on the path. He should always keep his final goal in sight – the treasures, the joys and the bliss that await him in his true home.
+> In fact, no other person should be so happy in this world as an initiate who is on the path. He should always keep his final goal in sight – the treasures, the joys and the bliss that await him in his true home.  
 > Give up all feeling of depression and live a joyous life, fully relaxed and thanking the Lord for the great gift he has conferred on you. Keep your thoughts in simran and bhajan and see what happiness you will find within yourself. Do not worry about anything in this life, which is all an unpleasant dream. The real life lies beyond, where your Master awaits you.
 
 Keeping an attitude of joy and gratitude while also focusing on our meditation is how we should live our lives. We should enjoy our life – even love it – but without attachment to it. This is the first way that we can lighten up and not take ourselves so seriously.
@@ -382,7 +382,7 @@ This world is a bridge; it is a means to the end. It is a step on the way to our
 
 In the Bible, Matthew 6:20-22, Jesus talks about the value of building up spiritual wealth in comparison to the futility of accumulating material wealth. He says:
 
-> Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal.
+> Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal.  
 > But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal; for where your treasure is, there will your heart be also.
 
 The Masters tell us that in order to live a normal life we only really need a roof over our head, a shirt on our back and food in our stomach. Our problem comes from striving to overprovide for our future by gathering wealth and property beyond these practical needs.
@@ -416,34 +416,34 @@ This path is all about light. Just think of the names of some of our books: _Lig
 At initiation, we were given the passport, the visa and the ticket, but now we have to get on that plane. The Master is the pilot; he knows where to go – towards the light. All we have to do is to sit down and keep his company while he takes us there. If we love someone, how can we not pay attention to him and follow him to the destination he has chosen? This is a path of bhakti, of devotion, of love. If we love him, we want to go to where he is and where he is going. We want to lighten up our lives, because that is what he wants for us too, to lighten up our attitudes, to lighten our physical lives, to become enlightened, to become full of light.
 
 Sultan Bahu says:
-> In the dark, fathomless night of ignorance,
-> &emsp;  love is a torch that brings light.
-> From it emanates a Melody 
-> &emsp;that enraptures lovers’ hearts!
+> In the dark, fathomless night of ignorance,  
+> &emsp;  love is a torch that brings light.  
+> From it emanates a Melody   
+> &emsp;that enraptures lovers’ hearts!  
 > <sub>_Sultan Bahu_</sub>
 
 That love, that light, that melody is the Shabd; let us go within, merge with it and become light ourselves.
 
 ---
-> The inner light one can see even in darkness, and even a blind man can experience it, because it is not the physical eyes but the attention that sees within.
+> The inner light one can see even in darkness, and even a blind man can experience it, because it is not the physical eyes but the attention that sees within.  
 > <sub>_Divine Light_</sub>
 
 ## The Time Is Now
 
-> &emsp;Faced with the sighs of lovers, 
-> even the mountains crumble to earth.
-> &emsp;Faced with the sighs of lovers, 
-> even deadly snakes flee to their holes.
-> &emsp;The sighs of lovers cause the stars 
-> to tumble from the heavens above. 
-> &emsp;Faced with the sighs of lovers, 
-> only the lovers remain steadfast.
-> Give up all procrastination 
-> &emsp;and awaken your soul...
-> Have faith in the Lord, like the birds 
-> &emsp;that fly through the air without carrying their food....
-> Bliss and grace reign in the heart
->  that glows with the light of love.
+> &emsp;Faced with the sighs of lovers,   
+> even the mountains crumble to earth.  
+> &emsp;Faced with the sighs of lovers,   
+> even deadly snakes flee to their holes.  
+> &emsp;The sighs of lovers cause the stars   
+> to tumble from the heavens above.   
+> &emsp;Faced with the sighs of lovers,   
+> only the lovers remain steadfast.  
+> Give up all procrastination   
+> &emsp;and awaken your soul...  
+> Have faith in the Lord, like the birds   
+> &emsp;that fly through the air without carrying their food....  
+> Bliss and grace reign in the heart  
+>  that glows with the light of love.  
 > <sub>_Sultan Bahu_</sub>
 
 ## How Much Is Enough?
@@ -476,22 +476,22 @@ But when is it God’s turn? When is it God’s inning? What are our priorities?
 
 Maulana Rum is quoted in _The Path:_
 
-> This world is a vast prison 
-> &emsp;and we are all prisoners in it; 
+> This world is a vast prison   
+> &emsp;and we are all prisoners in it;   
 > &emsp;make a hole and escape.
 
 The Master has given us the mental equipment with which to break out of this prison. We have just to do our meditation and let go of life in the glass jar, let go of the self that separates us from the one we love.
 
 Maharaj Charan Singh was asked whether the time was destined when desires and attachments would leave us. He says that it will change from those desires:
 
-> By giving time to meditation, by colouring our mind in Shabd and Nam, dying our mind in Shabd and Nam, by changing the tendency of the mind inward and upward.
+> By giving time to meditation, by colouring our mind in Shabd and Nam, dying our mind in Shabd and Nam, by changing the tendency of the mind inward and upward.  
 > <sub>March 10, 1988</sub>
 
 So there we have it. He asks us to train our mind to detach from the desires we encounter in life. He says a lot depends on us, that we have to turn the tendency of the mind from looking outward and all the activity we encounter there to looking inward and upward, and that we do that in our meditation, where we dye the mind in Shabd. He is saying we must take some actions in the transformation that is required. We must spin a cocoon, which shuts us off from the world and turns us inward, in order to be transformed into the butterfly that can fly in the light.
 
 Maharaj Charan Singh says:
 
-> When the wrappings are being removed, you first see that light and all those things inside your own self, and you know that the wrappings are being removed. Then you become nobler, more loving, and more and more devotion for the Father comes in you. When the clouds start disappearing, then the light of the sun starts shining. You always know when the clouds disperse and light comes. Similarly, you also know about yourself. When the mind becomes better or purer or nobler, that light penetrates you and your whole attitude in life changes, your characteristics and approach to life change.
+> When the wrappings are being removed, you first see that light and all those things inside your own self, and you know that the wrappings are being removed. Then you become nobler, more loving, and more and more devotion for the Father comes in you. When the clouds start disappearing, then the light of the sun starts shining. You always know when the clouds disperse and light comes. Similarly, you also know about yourself. When the mind becomes better or purer or nobler, that light penetrates you and your whole attitude in life changes, your characteristics and approach to life change.  
 > <sub>_Die to Live_</sub>
 
 That is the beginning of the great transformation that we undergo as disciples. We have only to take those actions to change the tendency of mind from outward to inward, to do our meditation, and “Let go.” We will walk out of that prison door and find our Master. We have only to maintain our focus solely on the Shabd with which he resonates. As Maharaj Sawan Singh writes in _Spiritual Gems:_
@@ -519,7 +519,7 @@ He often inserts into his discourse an anecdote which is capable of many interpr
 
 He goes on to claim that all of a man’s actions are “questions.” Weaving in quotations from the _Qur`an_, Rumi explains that man complains about the “answers”:
 
-> Every move man makes is a question, and everything that happens to him – grief and joy – is an answer.… If the answer is unpleasant, one must quickly ask forgiveness and not ask such a question again. Yet when the affliction which We sent came upon them, they did not humble themselves, but their hearts became hardened [6:43]
+> Every move man makes is a question, and everything that happens to him – grief and joy – is an answer.… If the answer is unpleasant, one must quickly ask forgiveness and not ask such a question again. Yet when the affliction which We sent came upon them, they did not humble themselves, but their hearts became hardened [6:43]  
 > – that is, they did not understand that the answer was in accord with their question. And Satan prepared for them that which they had committed [6:43] – that is, they saw the answer to their own question and said, “This ugly answer is not appropriate to that question.”
 
 Rumi’s _Discourses_ are sometimes startling, disturbing to our preconceptions. For example:
