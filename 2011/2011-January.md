@@ -5,7 +5,7 @@
 > &emsp;  and made friends with the mind.  
 > This fool, the mind, tied you down to the body  
 > &emsp;  and charmed you with sensual pleasures.…   
-This time therefore you should remember God
+> This time therefore you should remember God  
 > &emsp; and go home,  
 > &emsp;  or you will continue wandering   
 > &emsp;  through the four forms of life.  
